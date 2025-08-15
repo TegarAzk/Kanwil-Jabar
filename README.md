@@ -1,7 +1,7 @@
 # Press Release Lembaga Manajemen Kolektif Nasional (LMKN)
  
 
-## LMKN: Tidak ada Pungutan Royalti acara Hiburan Rakyat HUT ke 80 Kemerdekaan RI
+****LMKN: Tidak ada Pungutan Royalti acara Hiburan Rakyat HUT ke 80 Kemerdekaan RI****
 
 Lembaga Manajemen Kolektif Nasional (LMKN) menyatakan bahwa semua acara hiburan rakyat yang dilaksanakan dalam memperingati HUT ke 80 Kemerdekaan RI tidak akan dipungut royalti. 
 
@@ -10,16 +10,14 @@ Terkait lagu kebangsaan Indonesia Raya dan lagu kebangsaan lain yang dinyanyikan
 Penegasan itu merujuk pada Pasal 43 Undang-Undang Nomor 28 Tahun 2014 tentang Hak Cipta, yang menyatakan bahwa penggunaan Lagu Kebangsaan termasuk dalam kategori penggunaan wajar atau fair use
 
 LMKN sesuai dengan amanat pasal 89  UU No.28 Tahun 2014 tentang Hak CIpta yakni  menarik, menghimpun  royalti dari pengguna yang bersifat KOMERSIAL dan mendistribusikan nya kepada pencipta dan pemilik hak terkait yaitu performer dan produser rekaman suara .                                
-
 LMKN ini, selain berdasarkan UU Hak Cipta, juga telah diperlengkapi dengan Peraturan Pemerintah No.56 Tahun 2021 dan lebih rinci lagi diatur dalam Permenkum Nomor 27 Tahun 2025. 
 
 Sesuai dengan Permenkum 27 Tahun 2025 yang telah memberikan ketentuan tata kelola yang lebih mendukung perolehan royalti seperti perluasan kewenangan penarikan royalty digital, dibuka nya LMKN daerah bila diperlukan, persyaratan LMK dan evaluasi LMK yang diperketat, dan diturunkan nya penggunaan dana operasional LMKN dari 20% menjadi 8% dari hasil penarikan royalty.  
  
 LMKN memahami posisi nya sebagai jembatan antara user dengan pihak pencipta dan pemegang hak terkait dan tidak semata-mata mengedepankan hukum positif sebagai sarana untuk melaksanakan tugas. LMKN menyadari bahwa penegakan hukum merupakan langkah terakhir dalam pelaksanaan tugas penghimpunan royalti dan selalu berusaha untuk melaksanakan edukasi dan sosialisasi tentang penting nya menghormati hak cipta dan hak terkait oleh masyarakat pelaku usaha. Tidak lupa LMKN akan melakukan sosialisasi mengenai sistem pengelolaan royalty secara berkelanjutan.
 
----
 
-## Fokusi Digitalisasi
+****Fokusi Digitalisasi****
 
 LMKN menyadari bahwa capaian penarikan dan penghimpunan royalti di Indonesia masih jauh dari harapan para pencipta dan pemegang hak terkait. 
 
@@ -29,7 +27,6 @@ Salah satu ikhtiar LMKN periode 2025-2028 ini adalah mempersiapkan proses transf
  
 Selanjutnya LMKN menghimbau para pengguna musik dan lagu pada layanan publik yang bersifat komersial  untuk menghormati hak para pencipta dan pemegang hak terkait. Sejalan dengan itu LMKN akan berupaya untuk meningkatkan transparansi distribusi royalti antara lain melalui proses digitalisasi.
 
----
 
 **Jakarta 15 Agustus 2025**
 
